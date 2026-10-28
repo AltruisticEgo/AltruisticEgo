@@ -4,7 +4,6 @@
 <p align="center"> kieran , he / they only </p> 
 <p align="center"> transmasc & mlm </p>
 <p align="center"> I LOVE MY BOYFRIEND GREAT !!! </p> 
-<p align="center"> i heart 3fstinky ♡ </p>
 <p align="center"> <a href="https://en.pronouns.page/@ikeabat" target="_blank">01</a> <a href="https://www.youtube.com/watch?v=DLG9oTH-ZbQ" target="_blank">02</a> <a href="https://www.patreon.com/ikeabat" target="_blank">03</a> </p>
 <p align="center"> ✦ </p> 
 <p align="center"> <img width="120" height="75" src="https://64.media.tumblr.com/910f71ff0df3cfe7c9595ebfce7ace49/44b89fe3606a1157-7f/s1280x1920/0b033e2bb8c14409a9880a1c843441ff9ae6c19a.pnj"> <img width="120" height="75" src="https://64.media.tumblr.com/1a7da737ad38c3266b8e9b95e6121380/7ae17d8e121e6dff-10/s400x600/d840b49a4c63b2e9b2db7619eb8e09fd0572c0bf.pnj"> <img width="120" height="75" src="https://64.media.tumblr.com/58c196882e945234c907e5f05d5c3257/0c328f50a2c54403-ee/s540x810/c7f0fb279c1c95b779806ae25733b113557b6b3a.pnj"> </p> 
